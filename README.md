@@ -1,4 +1,1 @@
 - 👋 Hi, I’m @PIWI10
-- Im french and I love This sucks world
-- The truth is i can't reach space but my code can
-- My creation gonna be great and my life gonna be incredible
